@@ -1,0 +1,1 @@
+A website about TechCon 2024 Tech Conference. Join us for TechCon 2024, where industry leaders and tech enthusiasts gather to explore the future of technology. This year's conference will feature keynote speeches, panel discussions, and networking opportunities.
